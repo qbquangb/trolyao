@@ -1,2 +1,0 @@
-# trolyao
-Tro Ly Ao.
